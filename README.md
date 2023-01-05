@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Patrickedom
-- 👀 I’m interested in cryptocurrencies
-- 🌱 I’m currently learning how to create one
+- 👀 I’m interested in cybersecurity.
+- 🌱 I’m currently learning on how to become a cybersecurity analyst.
 - 💞️ I’m looking to collaborate on ideas with partners.
 - 📫 How to reach me= on WhatsApp+2347050832433
 
